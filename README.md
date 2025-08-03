@@ -1,1 +1,1 @@
-istockphoto-1402861017-1024x1024
+istockphoto-1402861017-1024x1024 (1).jpg
